@@ -61,3 +61,23 @@ REFERENCIA:
 
 Gallica. (s.f.). volume composé de trois manuscrits. https://gallica.bnf.fr/ark:/12148/btv1b52517146s/f45.item
 
+                                                          ## Unas sumas estudiantiles
+
+## Suma sobre Dios y la sustancia. 
+
+![IMG_20221116_011636854](https://user-images.githubusercontent.com/115519596/202118719-acf04560-019d-4cbb-a9d5-f17d1754e3a4.jpg)
+![IMG_20221116_011814838](https://user-images.githubusercontent.com/115519596/202118914-ec364051-0b1b-40db-b0e2-4c4709aaefcc.jpg)
+
+
+## Suma sobre el cuerpo, el alma y el hombre. 
+
+![IMG_20221116_011838745](https://user-images.githubusercontent.com/115519596/202119783-b9b9977a-2e13-4bbb-ad09-cf38163561e9.jpg)
+![IMG_20221116_011851999](https://user-images.githubusercontent.com/115519596/202120291-21b99942-8f3f-4f4f-b09a-e59c884e4927.jpg)
+![IMG_20221116_011902429](https://user-images.githubusercontent.com/115519596/202120321-f4f87fea-cb03-47b5-aff0-fab44a205aa6.jpg)
+
+
+## Suma sobre la contingencia, el entendimiento y la fe. 
+
+![IMG_20221116_011824243](https://user-images.githubusercontent.com/115519596/202120150-c374b432-44bf-43d6-8e50-bbdbf04a2ba5.jpg)
+
+

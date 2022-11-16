@@ -61,6 +61,7 @@ REFERENCIA:
 
 Gallica. (s.f.). volume composé de trois manuscrits. https://gallica.bnf.fr/ark:/12148/btv1b52517146s/f45.item
 
+
 ## Unas sumas estudiantiles
 
 ## Suma sobre Dios y la sustancia. 
